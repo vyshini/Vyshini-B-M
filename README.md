@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vyshinigowda@gmail.com**
 
-- ⚡ Fun fact **I like watching detective movies and series**
+- ⚡ Fun fact **solving sudoku and rubix cube**
 
 <h3 align="left">Socials:</h3>
 <p align="left">
